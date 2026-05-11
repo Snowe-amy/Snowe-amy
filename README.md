@@ -1,7 +1,7 @@
 <p align="center">
   <img src="ZeroCero⚠️.gif">
 </p>
-a man
+
 <!--
 **Snowe-amy/Snowe-amy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
