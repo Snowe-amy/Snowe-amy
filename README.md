@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="snaptik.org_video_79c7073c4ad147b709e40a91b56409c62-ezgif.com-">
+  <img src="org_video_79c7073c4ad147b709e40a91b56409c62-ezgif.com-">
 </p>
 ️　 　 ️　 　 ️️　  ˚₊‧꒰ა ୨ᰔ୧ ໒꒱ ‧₊˚
 <p align="center">
