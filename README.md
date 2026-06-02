@@ -1,4 +1,7 @@
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=❦&base=0&abbreviated=true" />
+</p>
+<p align="center">
   <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
 </p>
 ️　 　　 　✶ ┈ 𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔 ┈ ✶ 
