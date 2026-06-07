@@ -6,9 +6,9 @@
 </p>
 
 <p align="center">
-  <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
-  &nbsp;✶ ┈ 𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔 ┈ ✶&nbsp;
   <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
+  &nbsp;✶ ┈ 𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔 ┈ ✶&nbsp;
+  <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
 </p>
 
 <p align="center">
