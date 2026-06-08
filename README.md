@@ -1,3 +1,4 @@
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=✚&base=0&abbreviated=true" />
 </p>
@@ -5,12 +6,13 @@
 <p align="center">
   <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
 </p>
-⏔⏔⏔⏔<p align="center">
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+<p align="center">
   <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
   &nbsp;𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔&nbsp;
   <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
 </p>
-⏔⏔⏔⏔
+
 <p align="center">
   <img src="68747470733a2f2f692e706f7374696d672e63632f704c6a4676634e502f556e7469746c65643636372d32303235313231363132353630302e706e67.png">
 [dni] any problematic ships (esp. lawlu), I don’t like them being shipped , if u ship lawlu stay away from me
