@@ -2,9 +2,11 @@
   <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=✚&base=0&abbreviated=true" />
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+️　 　 ️　 　 ️　 　 ️　 　 ️　 　 ️　 　 ️　 　 
 <p align="center">
   <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
-</p>⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+</p>
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
   <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
   &nbsp;𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔&nbsp;
