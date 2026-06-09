@@ -14,7 +14,7 @@
 </p>
 
 <p align="center">
-  <img src="Không Có Tiêu Đề2_20260609074838.png.png">
+  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%812_20260609074838.png">
 [dni] any problematic ships (esp. lawlu), I don’t like them being shipped , if u ship lawlu stay away from me
   
 <p align="center">
