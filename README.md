@@ -9,9 +9,8 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
   <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
-  &nbsp;</p>
-‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="pinch nose" width="40"/> ‎ 
-&nbsp;
+</p>
+‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="pinch nose" width="50"/>
   <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
 </p>
 
