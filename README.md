@@ -4,21 +4,20 @@
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
-  <img src="lv_0_20260608201348~2 (1).gif">
+  <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
   <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
-</p>
-‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="pinch nose" width="50"/>
+  &nbsp;𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔&nbsp;
   <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
 </p>
 
 <p align="center">
-  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%812_20260609074838.png">
+  <img src="68747470733a2f2f692e706f7374696d672e63632f704c6a4676634e502f556e7469746c65643636372d32303235313231363132353630302e706e67.png">
 [dni] any problematic ships (esp. lawlu), I don’t like them being shipped , if u ship lawlu stay away from me
   
 <p align="center">
-  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260609075104.png">
+  <img src="68747470733a2f2f692e706f7374696d672e63632f443052365a4a72462f556e7469746c65643636372d32303235313231343138343132322e706e67.png">
 </p>
 
