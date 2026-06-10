@@ -4,7 +4,7 @@
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
-  <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
+  <img src="lv_0_20260608201348~2 (1).gif">
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
