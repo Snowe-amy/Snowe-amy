@@ -7,10 +7,12 @@
   <img src="lv_0_20260608201348~2 (1).gif">
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-<p align="center">
-  <a href="https://snowe-amy.atabook.org">𝖆𝖙𝖆 𝖇𝖔𝖔𝖐</a>
-  &nbsp;𖥔꒰ঌ𓆩♡𓆪໒꒱𖥔&nbsp;
-  <a href="https://guns.lol/snoweamy">𝖌𝖚𝖓𝖘.𝖑𝖔𝖑</a>
+<div align="center">
+   
+**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/sdbif6.png" alt="big ass" width="40"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
+
+<div align="center">
+
 </p>
 
 <p align="center">
