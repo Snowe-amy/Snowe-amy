@@ -18,6 +18,6 @@
 [dni] any problematic ships (esp. lawlu), I don’t like them being shipped , if u ship lawlu stay away from me
   
 <p align="center">
-  <img src="68747470733a2f2f692e706f7374696d672e63632f443052365a4a72462f556e7469746c65643636372d32303235313231343138343132322e706e67.png">
+  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260609075104.png">
 </p>
 
