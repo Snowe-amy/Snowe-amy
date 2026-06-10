@@ -9,7 +9,7 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <div align="center">
    
-**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/sdbif6.png" alt="big ass" width="40"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
+**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="big ass" width="40"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
 
 <div align="center">
 
@@ -22,4 +22,3 @@
 <p align="center">
   <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260609075104.png">
 </p>
-
