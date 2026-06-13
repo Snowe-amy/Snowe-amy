@@ -4,7 +4,7 @@
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <p align="center">
-  <img src="lv_0_20260608201348~2 (1).gif">
+  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/snaptik.org_video_607d275cfbdb1b44e97c1cb23c4e0aa0.gif">
 </p>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <div align="center">
