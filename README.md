@@ -1,8 +1,4 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/kween-sande/kween-sande/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260621071507.png">
-</p>
-
-<p align="center">
   <img src="snaptik.org_video_607d275cfbdb1b44e97c1cb23c4e0aa0~2.gif">
 </p> 
 <div align="center">
@@ -21,7 +17,4 @@
   
 <p align="center">
   <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260609075104.png">
-</p>
-<p align="center">
-  <img src="https://raw.githubusercontent.com/kween-sande/kween-sande/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%814_20260621071913.png">
 </p>
