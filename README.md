@@ -1,8 +1,8 @@
-╭┈➤ ✦ ┈┈ ♡ ┈┈ ✦ ┈┈ ♡ ┈➤╮
+
 <p align="center">
   <img src="snaptik.org_video_607d275cfbdb1b44e97c1cb23c4e0aa0~2.gif">
 </p> 
-╰┈➤ ♡ ┈┈┈┈┈ ✦ ┈┈┈┈┈ ♡ ┈┈┈┈┈ ✦ ┈➤╯
+
 <div align="center">
    
 **[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
