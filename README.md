@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260609075104.png">
+  <img src="https://raw.githubusercontent.com/Snowe-amy/Snowe-amy/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%813_20260621071038.png">
 </p>
 
 <p align="center">
