@@ -11,7 +11,7 @@
 
 </p>
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=✚&color=000000&labelColor=3A3A3A" style="margin-bottom:367px;" /><br>
+  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=🎹&color=000000&labelColor=3A3A3A" style="margin-bottom:367px;" /><br>
 </p>
 </p>
 <p align="center">
