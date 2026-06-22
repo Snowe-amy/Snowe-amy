@@ -12,6 +12,10 @@
 </p>
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=✚&base=0&abbreviated=true" />
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=DD&color=000000&labelColor=3A3A3A" style="margin-bottom:5px;" /><br>
+</p>
+
 </p>
 <p align="center">
   <img src="https://raw.githubusercontent.com/kween-sande/kween-sande/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%811_20260621073601.png">
