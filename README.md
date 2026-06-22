@@ -11,7 +11,7 @@
 
 </p>
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=🎹&color=000000&labelColor=3A3A3A" style="margin-bottom:367px;" /><br>
+  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=✚&color=000000&labelColor=3A3A3A" style="margin-bottom:367px;" /><br>
 </p>
 </p>
 <p align="center">
@@ -22,4 +22,4 @@
 </p> 
  ️i am the girlfriend of Trafalgar Law — handsome, elegant, intelligent, attractive, kind, attentive, strong, brave, creative, excellent, gentle, humble, generous, passionate, wise, humorous, loyal, reliable, graceful, radiant, calm, confident, warm, compassionate, witty, adventurous, respectful, sincere, captivating, bold, articulate, empathetic, inspiring, honest, patient, caring, supportive, classy, friendly, trustworthy, ambitious, intuitive, talented, helpful, practical, determined, charismatic, extraordinary, noble, dignified, sharp, innovative, refined, considerate, balanced, open-minded, peaceful, imaginative, optimistic, virtuous, noble-hearted, fluent, quick-witted, deep-thinking, philosophical, fearless, affectionate, expressive, emotionally intelligent, resourceful, interesting, engaging, perceptive, skillful, selfless, decisive, genuine, lively, cheerful, sharp-minded, clever, generous, comforting, persistent, discreet, polite, mature, tasteful, joyful, understanding, encouraging, well-rounded, energetic, vibrant, full of life, deep-souled, radiant-hearted, thoughtful, creatively minded, justice-oriented, trustworthy-hearted, tender, persistent, devoted, saintly, peaceful spirit, golden-hearted, harmonious spirit, emotionally intelligent, courageous, polite, harmonious, devoted, beautiful soul, easy-going, respectful, warm-voiced, emotionally strong, protective, noble, confident spirit, imaginative heart, loving, serene, attractive soul. ദ്ദി(˶ᵔ⩊ᵔ˵)
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=🎹&base=0&abbreviated=true" />
+  <img src="https://komarev.com/ghpvc/?username=Snowe-amy&color=000000&style=plastic&label=🤍&base=0&abbreviated=true" />
