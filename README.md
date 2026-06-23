@@ -10,10 +10,7 @@
 <div align="center">
 
 </p>
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=typeSnowe-amy&label=✚&color=000000&labelColor=3A3A3A" style="margin-bottom:367px;" /><br>
-</p>
-</p>
+
 <p align="center">
 
 ![](https://komarev.com/ghpvc/?username=Snowe-amy&style=plastic&label=✚&labelColor=3a3a3a&color=000000&base=0)
