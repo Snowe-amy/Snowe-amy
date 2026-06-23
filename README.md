@@ -8,9 +8,6 @@
 **[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
 
 <div align="center">
-
-</p>
-
 <p align="center">
 
 ![](https://komarev.com/ghpvc/?username=Snowe-amy&style=plastic&label=✚&labelColor=3a3a3a&color=000000&base=0)
