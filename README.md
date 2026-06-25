@@ -11,7 +11,8 @@
 <p align="center">
 
 ![](https://komarev.com/ghpvc/?username=Snowe-amy&style=plastic&label=✚&labelColor=3a3a3a&color=000000&base=0)
-
+୨ৎ
+![GitHub followers](https://img.shields.io/github/followers/Snowe-amy?style=plastic&label=followers&labelColor=000000&color=4a4a4a)
 <p align="center">
   <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
 </p> 
