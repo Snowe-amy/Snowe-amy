@@ -5,7 +5,7 @@
 ╰─.ೃ⋆°✩─𓆩🏴‍☠️𓆪─❦ྀ️─₊˚𝒍𝒂𝒘'𝒔 𝒎𝒚 𝒍𝒊𝒇𝒆─╯
 <div align="center">
    
-**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/8eqs4p.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
+**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/oq2gti.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
 
 <div align="center">
 <p align="center">
