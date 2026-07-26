@@ -16,7 +16,7 @@
 <p align="center">
   <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
 </p> 
-[dni] any problematic ships (esp. lawlu), I don’t like them being shipped ,  i hate l*wlu with a passion ong 𖦹 ´ ᯅ ` 𖦹 if u ship l*wlu stay away from me and don't interact if u ship l*wlu.
+[dni] any problematic ships (esp. lwlu), i don't like them being shipped. i hate lwlu with a passion ong 𖦹 ´ ᯅ ` 𖦹 if u ship it, don't interact
   <video src="https://github.com/user-attachments/assets/5d816d36-250a-473c-9a70-34c9b37e4b8e" controls></video>
   🗝️༝ ݁𖥔 ݁˖𓂃
   
