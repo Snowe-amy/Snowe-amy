@@ -1,8 +1,8 @@
- ╭─𝒎𝒚 𝒉𝒆𝒂𝒓𝒕 𝒊𝒔 𝒉𝒊𝒔ৎ─୨✦୧─⋆♱˚‧──𓆩🪽─╮
+ ╭─𝒎𝒚 𝒉𝒆𝒂𝒓𝒕 𝒊𝒔 𝒉𝒊𝒔ৎ──୨✦୧─⋆♱˚‧──𓆩🪽─╮
 <p align="center">
   <img src="lawemo.gif">
 </p> 
-╰─.ೃ⋆°✩─𓆩🏴‍☠️𓆪─❦ྀ️─₊˚𝒍𝒂𝒘'𝒔 𝒎𝒚 𝒍𝒊𝒇𝒆─╯
+╰─.ೃ⋆°✩─𓆩🏴‍☠️𓆪──❦ྀ️─₊˚𝒍𝒂𝒘'𝒔 𝒎𝒚 𝒍𝒊𝒇𝒆─╯
 <div align="center">
    
 **[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/oq2gti.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
