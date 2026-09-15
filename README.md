@@ -14,7 +14,7 @@
 ୨ৎ
 ![GitHub followers](https://img.shields.io/github/followers/Snowe-amy?style=plastic&label=followers&labelColor=000000&color=333333&cacheSeconds=600)
 <p align="center">
-  <img src="lv_0_202605310616282-ezgif.com-video-to-gif-converter.gif">
+  <img src="lawriy.gif">
 </p> 
 [dni] any problematic ships (esp. l*wlu). i hate l*wlu with a passion, ong 𖦹 ´ ᯅ ` 𖦹 pls don't interact if u ship it
   <video src="https://github.com/user-attachments/assets/5d816d36-250a-473c-9a70-34c9b37e4b8e" controls></video>
